@@ -1,0 +1,1 @@
+No vaig conseguir fer-lo ja que no l'acababa de entendre molt be
